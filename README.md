@@ -1,1 +1,23 @@
-# Khean
+happy 19th birthday, my love, khean. ❤️
+
+first of all, i just want to say how thankful i am that you were born, and how lucky i am that i get to be part of your life. out of all the people in this world, i'm so grateful that life brought me to you and gave me the chance to love someone as special as you. today is all about celebrating you, the beautiful person you are, and the happiness you bring into my life just by being yourself.
+
+it's crazy to think that we've been together for a year and a month already. we've shared so many moments in that time, from the happiest memories that make us smile whenever we think about them to the difficult days that tested our patience and understanding. we've had our ups and downs, our misunderstandings, and moments when things weren't always easy, but despite everything, we're still here, still choosing each other, and still learning how to love each other better. and honestly, that's one of the things i'm most grateful for. our relationship isn't perfect, but it's real, and i'm thankful that i get to experience all these things with you.
+
+thank you, love, for every little thing you've done for me, even those things you might not realize mean so much. thank you for your time, your patience, your affection, and for all the memories we've made together. thank you for the random conversations, the laughter, the sweetness, and even the moments that taught us something about ourselves and our relationship. you've become such a meaningful part of my life, and there are so many little things about us that i'll always keep close to my heart.
+
+i know i'm not always the perfect boyfriend, and i know there are times when i fall short or fail to express my love the way you deserve. but please know that what i feel for you is genuine. i'm still learning, growing, and figuring out how to become a better partner for you. i want to keep improving, not because you ask me to be perfect, but because you deserve someone who's willing to understand you, listen to you, and put in the effort to make our relationship better. i hope we never stop giving each other that chance, especially when things get difficult.
+
+now that you're turning 19, i hope this new chapter of your life brings you so many reasons to be happy. i hope you get closer to your dreams, discover more about yourself, and become more confident in the person you're growing into. i hope life gives you opportunities that excite you, people who genuinely care for you, and experiences that remind you how beautiful life can be. and on the days when things don't go as planned, i hope you find the strength to keep going and remember that you don't have to have everything figured out just yet. you're still growing, love, and i'm so excited for all the wonderful things waiting for you.
+
+more than anything, i hope i can continue to be someone you can turn to through every season of your life. i want to celebrate your achievements, listen to your worries, comfort you when you're tired, and remind you of your worth whenever you forget it. i want to know more versions of you as the years go by, to see you grow into the person you want to become, and to make more memories with you along the way. i can't promise that we'll never have difficult days, but i hope that whenever they come, we continue to choose understanding, honesty, patience, and love.
+
+thank you for being you, khean. thank you for being my love and for making this past year and a month a part of my life that i'll always treasure. i'm proud of us for making it this far, for the things we've learned, and for the moments we've managed to overcome together. i may not always have the perfect words to tell you how much you mean to me, but i hope my actions continue to show you that i'm grateful for you and that i never take the love we share for granted.
+
+happy 19th birthday again, love. i pray that god blesses you with good health, peace of mind, genuine happiness, answered prayers, and the courage to pursue everything your heart desires. i hope this year is kinder to you, that you find more reasons to smile, and that you learn to appreciate yourself as much as the people who love you appreciate you.
+
+and of course, i hope we get to celebrate many more birthdays together. i hope that years from now, we'll look back at this stage of our lives and smile at how far we've come, at all the little things we used to worry about, and at all the memories that made our relationship what it is today.
+
+i love you so much, love. thank you for existing, for coming into my life, and for being someone i get to call mine. you deserve so much love, not just today but every single day. i'll always be grateful for the chance to share this journey with you, and i hope we still have so many beautiful chapters waiting for us.
+
+happy 19th birthday, my khean. enjoy your special day, my love. you deserve all the happiness in the world. i love you, always. ❤️
